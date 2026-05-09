@@ -4,3 +4,5 @@ given clearly so yeah where we will udnersatand so that is what clealry you may 
 
 Publisher: American Mathematical Society (AMS)
 Probabili it is not possible.
+
+10th page is completed ; AMS not installed single notes or not single book!
